@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @anaalfarogarciaa
 - 👀 I’m interested in all topics related to technology! 
-- 🌱 I’m currently an undergraduate senior year student at CSU Monterey Bay.
+- 🌱 I’m currently a graduate student at CSU Monterey Bay studying Instructional Science and Technology.
 - 💞️ I’m looking to collaborate on any project to learn more about what I am passionate about.
-- 📫 How to reach me: anaalfarogarcia4@gmail.com
+- 📫 How to reach me: anaalfarogarcia4@gmail.com or via LinkedIn @Ana Alfaro-Garcia
 
 
 <!---
